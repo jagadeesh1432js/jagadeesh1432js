@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... i have business plan i am readyu collabrate with any small investor 
 - 📫 How to reach me ... u can reach jagadeesh9956 my ista id 
 - 😄 Pronouns: ... 
-- ⚡ Fun fact: ... just fighr with your brain 
+- ⚡ Fun fact: ... just fight with your brain 
 
 <!---
 jagadeesh1432js/jagadeesh1432js is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
